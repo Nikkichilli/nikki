@@ -1,4 +1,4 @@
-# holidaying in hyderabad
+# holiday in hyderabad
 Eden HomeStay is plantation rich home, situated in the the middle of organic spice farm on Karwar, Sirisi State Highway. 2 km from National Highway
 Explore our beautiful listings in multiple cities and know the localities wherever you travel. Now, you can personalize your stay to make it feel homely.
 Choose your listing as per your convenience and complete the booking with ease through our secured booking panel.
